@@ -1,8 +1,8 @@
 # Link-Video-Viral-Siswi-Gorontalo-Full-7menit-Asli
 Link-Video-Viral-Siswi-Gorontalo-Full-7menit-Asli
-<H2><a href="https://terabox.com/s/1QEpuGmlefOc_nXjNzmTQzQ">VIDEO NONTON DISINI KLIK</a></H2>
+<H3><a href="https://terabox.com/s/1QEpuGmlefOc_nXjNzmTQzQ">LINK VIDEO TERABOX</a></H2>
 <br>
-<H2><a href="https://terabox.com/s/1QEpuGmlefOc_nXjNzmTQzQ">VIDEO NONTON DISINI KLIK</a></H2>
+<H2><a href="https://terabox.com/s/1QEpuGmlefOc_nXjNzmTQzQ">LINK VIDEO CLICK HERE</a></H2>
 
 Link video viral siswi Gorontalo full 7 menit asli belakangan ini jadi topik panas di berbagai platform media sosial. Banyak yang penasaran dengan konten tersebut karena ramai diperbincangkan oleh netizen.
 
